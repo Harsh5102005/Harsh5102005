@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Harsh maurya
 - 👀 I’m interested in Computers and Latest Technologies
-- 🌱 I’m currently Pursuing BCA and now i am in final year
-- 📫 How to reach me - ig- @ig_harsh_maurya  Telegram: @harsh51020056
+- 🌱 I’m currently Pursuing MCA and I already Completed BCA Degree.
+- 📫 How to reach me - ig- @ig_harsh_maurya  Telegram: @harsh5102005
 
 
 <!---
